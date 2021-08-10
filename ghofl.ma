@@ -1,0 +1,1 @@
+{"حساب":"حساب ها\n\nRedmi/begonia/begonia:10/QP1A.190711.020/V12.0.8.0.QGGMIXM:user/release-keys\n\nRedmi/curtana_global/curtana:11/RKQ1.200826.002/V12.0.2.0.RJWMIXM:user/release-keys","رمز":"12345","پیام":"کدر جان دفعه بعدی جان خودت رمزو فراموش نکن"}
