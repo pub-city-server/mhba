@@ -1,1 +1,8 @@
-{"تبلیغ":"فعال","نوع":"فیلم","تیتل":"تبلیغات","پیام":"","لینک":"https://atrinaweb.com/wp-content/uploads/2020/02/The-Impact-of-Advertising-on-Businesses.jpg","سایت":"https://tablighat98.ir/130-advertising-advertising-formulas-in-internet-marketing/","بازدید":"نظرت در مورد عکس چیه","تعداد کلیک":"نظرت در مورد عکس چیه","زمان":"6","لغو زمان":"فعا"}
+wHoP9I902XW+YKHDZqTcObUR/zVkeKmN3ysIosUkBmk26vw0bipBIqmrJJJ8p8nu0tFEZlMe2J78
+JC1XXioBmyZoSGhA2rXhEKDmS65lCk4WP6TY7Slh/Fx7gGXaN0SNjSaKOSOIqv6z+K2kCeaRbNXq
+gfpSJkUgW/Pc2H+BIZDkSBppWIwKZvaChn78lbxMeEci51ZeUcIwBMWDJwiAFB4vvekYVviE0dJY
+Z2pbzzgfphKzCI9kjf99ufwnwZ8yWNdUtmZjgJRE4Ig4RiMcWyz7ivKDuJikKWwDAqf5E/TQBrK1
+NqBlClVc0bFHna1sD4NXpLh/Jf0SbD7UIkq3uHbxtodHSSjS3VAbFK53GLFRCwpnaYWEVAIsmUok
+zRkwCqsxYulrQ+18uYvCLyGXEC/CJXCEjQXBo+UM5wFFJb3OSuNM/YdhjFvMXZy3cFzzL6ffZDc/
+7eqL39mrkkKLTsiGnTzaAAoaqYsZJY5IaYdGSB+gsZO/3aGZKDL+ba0cJb7x/bOV6r+ah2X8Jbvn
+FlL2VDi1OR30KU3vnjMjuAoM31cUJ6Pabs7tYi5XUqzHVA1IzKxdkLoq99UkaycfGg==
