@@ -1,1 +1,5 @@
-{"جایزه":"فعا","تعداد":"3","پیام":"","مسدود":"","پول":"سه هزارتومان","ریست":"","شناسه":"","فعال":"فعال ها\nsamsung/a20sxx/a20s:10/QP1A.190711.020/A207FXXS2BUA4:user/release-keys","کد":"3546"}
+kHkL/jf6U17cJwbuLz1r82AMCkfJ1NyR0JeGZQBY8kzVByTnoNoQCWMQScS7kn9fyJkQIHzTZXHQ
+2XupIYIIm86bro8wfkGBa3ErvzLsVZ7C1QntslC9xu5+0aoE/DVkHJklYrKLvlB/S7MHNltd7NxS
+ebVBimyDOokjTk7hZFNHU9lvqZPoeoS2PbSUCkWdNDU1bcgkveHctC5Pa4rQZkmuIINxiqUVZ1Iy
+v/9Pw+UC+xxFEOFOAaRWSJxXR+YbPxwzlv316ev717sq1FLCvZ1pPVNpdAuQe1Cw0DQR75It2Cbo
++eQkbYje/M1xYXKBt2oYlelFTFYlX7Cn0LXZUA==
