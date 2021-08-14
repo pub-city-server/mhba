@@ -1,1 +1,8 @@
-{"صفحه":"فعال","تیتل":"","پیام":"","سایت 1":"تست ","سایت 2":"تست ","سایت 3":"تست ","حساب":"فعال ها\n\nRedmi/begonia/begonia:11/RP1A.200720.011/V12.5.1.0.RGGMIXM:user/release-keys\n\nsamsung/a20sxx/a20s:10/QP1A.190711.020/A207FXXS2BUA4:user/release-keys","پشتیبانی":"واتساپ","لینک محبوب ها":"https://rubika.ir/hamyar__app"}
+APLYpz1XpzXw3dIMwa3NhJS/HUnw1aZ1CfQzsWgkRtHL3OQFwHq6DnASqRSJ31ttXhSdlahMOQZA
+VvhyhoNtncrwlmj7bhkjWUGJJ9csL1z0oKHnVM8iuYcXHM7x/5j1S3W0n8ni6nbImlUUD7KCffZI
+2Km4fcMcqn5Wo16yV9vf8gRLcWrstXfiG+/mdvHq0gA5k+FF0QiY9d37VHBPym6e4w7Y49hGDD6p
+UR9TBoIMlmOqiyDOA9UT378YSTLCe1mOQDf/DpxkDJa2XdzwyNjAemjPRp8Z5P0SpaUOxudeeeUk
+IBTPgYNt0PavE4o/xF/855PD7Z5PrJXYurG9WoKkBWId0NwDcjk4xzqPUfAYRE1pciRqbcWtorqK
+hniUW/uJj1sfZ3ek34bRZOm8vhQkvrKCa+vwv4BlSp6J5GjL60j919XhTAJ+icqqBXjq6mPUgvJO
+lDKRstTHRMHskSzBl7fxRgGEzBfeEIwQkqQFAMUu2MOE+aAqcm9Jgbmfme6mHpoMzEi3flCxeTj7
+YA==
