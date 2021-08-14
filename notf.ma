@@ -1,1 +1,2 @@
-{"نوتفیکشن":"فعال","تیتل":"مهدی","پیام":"حالا کپچر بگیر"}
+JGa6hrsVOXWFcjmDWlWOJ056hXoVCzYgiQV9BilZQDUgarfo6t+sHHfAjJH6QUUVyb70yok7quJ6
+ZnIzr2EUE72j8noq3Ykp160kNcc7+fiD7At1pOc63sJZzvyWh87Z
