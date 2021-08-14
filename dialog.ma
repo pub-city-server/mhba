@@ -1,1 +1,2 @@
-{"دیالوگ":"فعال","متن":"سلام","دکمه":"علیک","سایت":"","قفل":"فعال"}
+Cn0V+ZFQr8vSuA0MjIgWohnK7efyZct5YvIswEWu4bajuzEgouoG8IFDGANnHHnRMFWbf8RvPVC8
+XSQuPTTAuWksmAaOr+H41IDNqItRlq84xwYvWSuf6bMpQTmO7OOIeBmXMkPYzjUUkL5YSHqN3Q==
